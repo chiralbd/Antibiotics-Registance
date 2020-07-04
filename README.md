@@ -14,7 +14,7 @@ community engagement strategy could be devised.
 2. Data collection and paper submission after every 6 months.
 
 ## Supervisor
-Syeda Tasneem Towhid, Ph.D
-Assistant Professor
-[Department of Microbiology](https://jnu.ac.bd/dept/portal/web/microbiology)
+Syeda Tasneem Towhid, Ph.D <br>
+Assistant Professor<br>
+[Department of Microbiology](https://jnu.ac.bd/dept/portal/web/microbiology) <br>
 [Jagannath University](https://jnu.ac.bd/), Dhaka-1100

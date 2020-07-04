@@ -10,7 +10,7 @@ community engagement strategy could be devised.
 2. A preliminary study would show knowledge about a global issue among graduates.
 
 ## Time Duration
-1.2 years 
+1. 2 years 
 2. Data collection and paper submission after every 6 months.
 
 ## Supervisor

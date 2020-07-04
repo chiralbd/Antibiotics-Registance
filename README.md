@@ -5,7 +5,7 @@
 To assess the possibility of success of anti-microbial stewardship program.
 
 ## Expected Outcomes
-1. T o learn about current perception about antibiotic use and resistance so that at effective
+1. T o learn about current perceptions about antibiotic use and resistance so that an effective
 community engagement strategy could be devised.
 2. A preliminary study would show knowledge about a global issue among graduates.
 
